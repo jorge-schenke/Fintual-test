@@ -1,2 +1,2 @@
 # Fintual-test
-Ejercicio postulación Fintual
+Ejercicio postulación Fintual Jorge Schenke :fire:
